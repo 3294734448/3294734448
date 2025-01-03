@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @3294734448
-- 👀 I’m interested in AI
+- 👀 I’m interested in all
 - 🌱 I’m currently learning python,JAVA
 - 💞️ I’m looking to collaborate on anywhere
 - 📫 How to reach me email address:3294734448@qq.com
